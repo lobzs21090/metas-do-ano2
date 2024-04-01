@@ -1,2 +1,2 @@
-# arrozperobado
-site com os objetivos de um arroz
+# adany e loh
+site com os objetivos de garota
