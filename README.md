@@ -1,2 +1,2 @@
-# adany e loh
-site com os objetivos de garota
+# Adany e Lola
+Diario das nosso futuro.
